@@ -10,6 +10,6 @@ We are also interested in exploring the recreation of these medicines - if you w
 
 ### Follow us on our socials
 
-Twitter and Instagram - @_breakinggood
+Twitter and Instagram | @_breakinggood
 
-Facebook - @thebreakinggoodproject
+Facebook | @thebreakinggoodproject
